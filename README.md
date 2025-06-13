@@ -1,0 +1,2 @@
+# Comprehensive-SEO-Audit-Optimization-for-Organic-Traffic-Growth-INFOSYS
+Project Objective: This project focuses on identifying and addressing SEO issues, implementing best practices, and improving the site's visibility and ranking on search engines. To conduct a thorough SEO audit and implement optimization strategies to Increase organic traffic,Improve search engine rankings, and Enhance overall online visibility.
